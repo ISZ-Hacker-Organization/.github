@@ -3,4 +3,4 @@
  
   
 - We consist of 7 people at the moment, but are always looking for more people to join.
-![image](https://user-images.githubusercontent.com/114985285/226838663-34165637-74d3-447f-9cf7-de036c6640ad.png)
+![Ice_Station_Z_png_logo](https://user-images.githubusercontent.com/78656905/227382970-15a0528d-1bcd-49a9-880d-d220fdd0fb83.png)
